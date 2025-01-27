@@ -1,6 +1,13 @@
 MÉXICO.— Antonio Pérez Garibay, quien es mayormente reconocido como el papá del piloto mexicano, Sergio ‘Checo’ Pérez, confirmó los rumores de que está saliendo con Lucía Méndez.
 
-Sin embargo, el también exdiputado al Congreso de la Unión de México precisó que aún no tienen un noviazgo, aunque no descarta la posibilidad, ya que está muy interesado en seguir conociéndola, pues afirmó que le parece una mujer llena de virtudes.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
 
 Papá de ‘Checo’ Pérez reafirma su interés hacia Lucía Méndez
 
